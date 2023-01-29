@@ -1,2 +1,0 @@
-# Davinson-Garcia
-About Me
